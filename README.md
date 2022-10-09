@@ -6,7 +6,7 @@ Bem Vindo ao meu livro de receitas
 
 - **Yakisoba**
 
-- **Muse de Chocolate**
+- **Muse **
 
   
 
